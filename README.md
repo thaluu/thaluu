@@ -1,5 +1,5 @@
 <p align="center"><img src="readme.jpeg"></p>
 
-_**We don't have to do all of it alone. We were never meant to.**_
+_**When it comes to winning, you need the skill and the will.**_
 
-Brene Brown
+Frank Tyger
