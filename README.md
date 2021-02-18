@@ -1,5 +1,5 @@
 <p align="center"><img src="readme.jpeg"></p>
 
-_**The determination to win is the better part of winning.**_
+_**What's the greater risk? Letting go of what people think or letting go of how I feel, what I believe, and who I am?**_
 
-Daisaku Ikeda
+Brene Brown
