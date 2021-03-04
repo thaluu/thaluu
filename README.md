@@ -1,5 +1,8 @@
 <p align="center"><img src="readme.jpeg"></p>
 
-_**If you don't give up, you still have a chance. And when you are small, you have to be very focused and rely on your brain, not your strength.**_
+_**One does not accumulate but eliminate.
+It is not daily increase but daily
+decrease. The height of cultivation
+always runs to simplicity.**_
 
-Jack Ma
+Bruce Lee
