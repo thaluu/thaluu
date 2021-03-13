@@ -1,5 +1,5 @@
 <p align="center"><img src="readme.jpeg"></p>
 
-_**Whether you think you can or think you can't, you're right..**_
+_**Life is like a camera: just focus on what is important, capture good times, develop from negative, and if things do not work out, take another shot!**_
 
-Henry Ford
+Daireth Winehouse
